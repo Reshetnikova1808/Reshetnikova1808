@@ -19,7 +19,6 @@
 ![image](https://github.com/Reshetnikova1808/Reshetnikova1808/assets/147312981/75567d81-4d66-4052-8966-45dfe68ae77d)
 ![image](https://github.com/Reshetnikova1808/Reshetnikova1808/assets/147312981/c0648356-c447-4ec0-a6a5-34e11720c8f2)
 ![image](https://github.com/Reshetnikova1808/Reshetnikova1808/assets/147312981/a5a93b8b-b80b-4f21-92d8-547122a8adfe)
-![image](https://github.com/Reshetnikova1808/Reshetnikova1808/assets/147312981/352ec371-fb8b-4365-ace0-224de6334b63)
 ![image](https://github.com/Reshetnikova1808/Reshetnikova1808/assets/147312981/4aca2be4-881c-49cb-8fa5-03d166f8e10f)
 ![image](https://github.com/Reshetnikova1808/Reshetnikova1808/assets/147312981/b870b979-c7a0-407e-ab3e-3186aa5f81f8)
 ![image](https://github.com/Reshetnikova1808/Reshetnikova1808/assets/147312981/67d95262-d59c-410d-9572-5336956f9833)
